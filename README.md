@@ -1,4 +1,4 @@
-# Kado
+# Kadoooo
 
 #### Jangan pernah nenulis nama seseorang pada sebuah buku nanti abadi katanya,<br> aku sebeenarnya tidak berniat mengabadikan namamu <br>karena namamu sudah abadi disuatu tempat yang jauh lebih berharga daripada bukku <br> Kutulis Ini Sebatas Untuk Memenuhi Tugasku, Tapi Ini cukup untuk bawa kamu masuk dalam alur ceritaku,<br> walupun aku sudah tak seperti dulu lagi dalam mendapatanmu 
 
